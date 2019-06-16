@@ -1,1 +1,1 @@
-# hellow-world
+# hellow-worldbom. meu nome e felipe eu uso o github para aprender um pouco .de criar sites  . pois eu acho muito legal essa area da informatica eu nao sou nada experiente eu nao passo de um estudante do fundamental 2 gue guer aprender a mecher com a computacao por isso gue eu guero aprender mas . bom eu gueria so aprender sabe. pois  o meu tio me falou gue voce pode fazer o gue guiser com os sites .criar um jogo ate sites educacionais por isso eu achei enteressante e eu gueria aprender.obrigado por te lido.
